@@ -1,3 +1,3 @@
-hi, im frqstbite
+hi, im ashi
 
-gits kinda uncool but cool at the same time because i dont do a lot of collaboration
+gits kinda cool but mostly uncool at the same time because i dont do a lot of collaboration
